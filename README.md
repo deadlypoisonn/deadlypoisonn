@@ -1,5 +1,5 @@
 <div align=center>
-<img src="https://readme-typing-svg.demolab.com?font=Fontdiner+Swanky&size=23&pause=500&color=23234e&center=true&vCenter=true&width=435&lines=y'know,+that+girl;is+really+something.;upset+already?"
+<img src="https://readme-typing-svg.demolab.com?font=Fontdiner+Swanky&size=23&pause=500&color=f30805&center=true&vCenter=true&width=435&lines=y'know,+that+girl;is+really+something.;upset+already?"
 
 will be remade for poison my boy
   

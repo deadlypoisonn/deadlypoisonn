@@ -9,6 +9,4 @@
 MY WIFE!!!!!!!!!!! -->
 <a href="https://github.com/itsmealtime">itsmealtime <333
 
-67 poisonlings <3
-
-ahhaaahaha 67676767 aaaahhahakill me now
+68 cigarettes yummie

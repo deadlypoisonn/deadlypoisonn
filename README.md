@@ -7,7 +7,7 @@
 ִ<a href="https://guns.lol/thekingscourge">₊˚°.♱˙⋆✮GUNS˚₊‧⁺⋆♱
 
 MY WIFE!!!!!!!!!!! -->
-<a href="https://github.com/BlazeTCsRadio">BlazeTCsRadio <333
+<a href="https://github.com/itsmealtime">itsmealtime <333
 
 67 poisonlings <3
 

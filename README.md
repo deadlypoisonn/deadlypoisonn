@@ -4,7 +4,7 @@
 
 <a href="https://kingscourge.atabook.org">⋆˚꩜｡ ATA ⋆｡𖦹°⭒˚｡⋆</a> <br>
 
-ִ<a href="https://guns.lol/thekingscourge">₊˚°.♱˙⋆✮GUNS˚₊‧⁺⋆♱
+ִ<a href="https://guns.lol/deadlypoisonn">₊˚°.♱˙⋆✮GUNS˚₊‧⁺⋆♱
 
 MY WIFE!!!!!!!!!!! -->
 <a href="https://github.com/itsmealtime">itsmealtime <333

@@ -6,6 +6,8 @@
 
 ִ<a href="https://guns.lol/deadlypoisonn">₊˚°.♱˙⋆✮GUNS˚₊‧⁺⋆♱
 
+^^ still has scourge on it??? im so lazy ok
+
 MY WIFE!!!!!!!!!!! -->
 <a href="https://github.com/itsmealtime">itsmealtime <333
 

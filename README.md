@@ -11,6 +11,4 @@
 MY WIFE!!!!!!!!!!! -->
 <a href="https://github.com/itsmealtime">itsmealtime <333
 
-so this is kinda important but I USED TO. like forsaken but ive really grown to see the bad side. if you see me with a forsaken skin im usually with my cousin who's obbessesed eith it atm. Ive tried to get him out of it, believe me ive tried but to no avail. I usually like stuff like the actual noli myth and the actual 007n7/c00lkidd exploits. Those are kinda interestin to me. Anyways for pressure, im not too sure what in the hell happened there, someone PLEASE tell me. I only like to play the game to try to get to sebastian lmfao. My user on roblox is Moxxie_HelluvaBoss24 but I assure you im not really into the hellaverse or whtv i madetgat damn user in SIXTH FUCKING GRADE I HATE IT SO FUVKING MUCHBUT J CANT CAHNEG JTUGHHHH snd i can't use a different account bc i have so much progress on all of the games I enjoy on that account+avatars. I hate the username as much as you do. If theres any problematic people or fandoms you'd like for me to know about reach out to me on dc at haxxor2. ok sorry for the yap
-
 75 cigarettes yummie

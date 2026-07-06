@@ -4,7 +4,7 @@
 
 <a href="https://deadlypoisonn.atabook.org">⋆˚꩜｡ ATA ⋆｡𖦹°⭒˚｡⋆</a> <br>
 
-ִ<a href="https://guns.lol/deadlypoisonn">₊˚°.♱˙⋆✮GUNS˚₊‧⁺⋆♱
+ִ<a href="https://en.pronouns.page/@deadlypoisonn_">₊˚°.♱˙⋆✮PRONOUNS˚₊‧⁺⋆♱
 
 ^^ still has scourge on it??? im so lazy ok
 

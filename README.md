@@ -6,9 +6,7 @@
 
 ִ<a href="https://en.pronouns.page/@deadlypoisonn_">₊˚°.♱˙⋆✮PRONOUNS˚₊‧⁺⋆♱
 
-^^ still has scourge on it??? im so lazy ok
-
 MY WIFE!!!!!!!!!!! -->
 <a href="https://github.com/itsmealtime">itsmealtime <333
 
-96 cigarettes yummie
+97 cigarettes yummie

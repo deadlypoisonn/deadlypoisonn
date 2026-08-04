@@ -9,6 +9,4 @@
 MY WIFE!!!!!!!!!!! -->
 <a href="https://github.com/itsmealtime">itsmealtime <333
 
-107 cigarettes yummie
-
-^ THANK YOU GUYS ^_^
+108 cigarettes yummie ❦

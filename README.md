@@ -4,9 +4,9 @@
 
 <a href="https://deadlypoisonn.atabook.org">⋆˚꩜｡ ATA ⋆｡𖦹°⭒˚｡⋆</a> <br>
 
-ִ<a href="https://en.pronouns.page/@deadlypoisonn_">₊˚°.♱˙⋆✮PRONOUNS˚₊‧⁺⋆♱
+ִ<a href="https://pronouns.cc/@deadlypoisonn">₊˚°.♱˙⋆✮PRONOUNS˚₊‧⁺⋆♱
 
 MY WIFE!!!!!!!!!!! -->
 <a href="https://github.com/itsmealtime">itsmealtime <333
 
-154 cigarettes yummie ❦
+155 cigarettes yummie ❦

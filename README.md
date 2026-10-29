@@ -13,6 +13,6 @@ POISON OF PT ! -
 <a href="https://github.com/casinotown">@casinotown
 ! 
 
-LORD X OF THE TEMPEST ! - 
-<a href="https://github.com/THE-TEMPEST">@THE-TEMPEST 
+LORD X OF THE TEMPIST ! - 
+<a href="https://github.com/THE-TEMPIST">@THE-TEMPIST 
 ! 
